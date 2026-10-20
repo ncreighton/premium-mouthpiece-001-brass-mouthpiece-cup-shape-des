@@ -1,0 +1,2 @@
+# premium-mouthpiece-001-brass-mouthpiece-cup-shape-des
+You've spent hours sketching mouthpiece cup shapes on paper, only to realize your proportions don't translate to actual brass. The Brass Mouthpiece Cup Shape Designer ends the guesswork by giving you a structured, visual system to design, compare, and refine your cup geometry before touching a lathe.  This Notion template transforms mouthpiece desi
